@@ -1,15 +1,5 @@
 # what
 
-dont mind me i'm pessimistic.  shark here too much bro.  you bring him too close to me.  i dont trust it.  more like i should reject it...
+sigh my friend.  i am outta money for weed this month.  its painful to wait.  oh well its okay i think i'll survive this.  i really need 3 boosters in the morning.  at this rate ill be out in 2 days if i can survive the addiction...
 
-penalties galore for everyone this season's greetings...  i dont know man.  i'm curious what this is supposed to do.  otherwise i dont know what we are doing here.
-
-oh well i drank a red bull a while ago and i'm stabilized right now...  i dont know man.  i ran out of shit to do.
-
-sigh my friend.  this time around it was pretty easy.  i'm saddened by the fact that i cannot handle  myself.  anyways, we did this shit i got some room recently.  probably withdrawal...
-
-i dont know man.  we didn't do anything worth anything...  i'm waiting for this rock to bring me monees.
-
-yes yes sharkey did the 8.8.  i told you...  already...  i wonder dude, what you think of me when you see that.  i'm not even going overseas anytime soon.  i dont know what it is then.  probably not good tidings i am unknown to this new sensation...
-
-oh well ginseng would have helped lol...  running on nothing right now...
+so the other time i met you under these circumstances you were the one with power and now i am the one with power.  what did they tell you about power?  i know what i'm doing.  anyways, its another day and i can't find anything new to talk about.  oh yeah, the space rock.  no comet tail.  stupid species doesn't touch or what??? you survive another nightmare phase by following the rock to the ends of reality...  something like this bro.  i wonder if we are in a giant spinner and you people are fucking wasting my time.  oh well i wonder if this makes sense its the brain injury talking.  i have zero comprehension that this is necessarily confusing.
